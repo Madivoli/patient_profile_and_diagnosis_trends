@@ -7,7 +7,7 @@
 
 𝗣𝗔𝗧𝗜𝗘𝗡𝗧 𝗣𝗢𝗣𝗨𝗟𝗔𝗧𝗜𝗢𝗡 𝗢𝗩𝗘𝗥𝗩𝗜𝗘𝗪
 
-NextCare Health demonstrates 𝗮 𝗵𝗲𝗮𝗹𝘁𝗵𝘆, 𝗻𝗼𝗻-𝘃𝗼𝗹𝗮𝘁𝗶𝗹𝗲 𝗼𝗽𝗲𝗿𝗮𝘁𝗶𝗼𝗻𝗮𝗹 𝗺𝗼𝗱𝗲𝗹. The data shows a 𝟱𝟴% 𝗳𝗲𝗺𝗮𝗹𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝗯𝗮𝘀𝗲 with a high focus on chronic and behavioral health. The concentration of adult patients with chronic conditions suggests 𝗮 𝗺𝗮𝘁𝘂𝗿𝗲 𝗽𝗿𝗮𝗰𝘁𝗶𝗰𝗲 𝘄𝗶𝘁𝗵 𝗮 𝗹𝗼𝘆𝗮𝗹 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝗯𝗮𝘀𝗲. Management should focus on 𝗺𝗮𝗶𝗻𝘁𝗮𝗶𝗻𝗶𝗻𝗴 𝗵𝗶𝗴𝗵 𝘀𝗮𝘁𝗶𝘀𝗳𝗮𝗰𝘁𝗶𝗼𝗻 𝗹𝗲𝘃𝗲𝗹𝘀 𝘄𝗶𝘁𝗵𝗶𝗻 𝘁𝗵𝗲 𝗱𝗼𝗺𝗶𝗻𝗮𝗻𝘁 𝟯𝟱–𝟳𝟰 𝗳𝗲𝗺𝗮𝗹𝗲 𝗱𝗲𝗺𝗼𝗴𝗿𝗮𝗽𝗵𝗶𝗰 while 𝗲𝘅𝗽𝗹𝗼𝗿𝗶𝗻𝗴 𝗴𝗿𝗼𝘄𝘁𝗵 𝗼𝗽𝗽𝗼𝗿𝘁𝘂𝗻𝗶𝘁𝗶𝗲𝘀 𝗶𝗻 𝗽𝗲𝗱𝗶𝗮𝘁𝗿𝗶𝗰 𝗮𝗻𝗱 𝗴𝗲𝗿𝗶𝗮𝘁𝗿𝗶𝗰 𝗰𝗮𝗿𝗲 𝗮𝘀 𝘁𝗵𝗲 𝗰𝘂𝗿𝗿𝗲𝗻𝘁 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝗯𝗮𝘀𝗲 𝗮𝗴𝗲𝘀. 
+NextCare Health demonstrates 𝗮 𝗵𝗲𝗮𝗹𝘁𝗵𝘆, 𝗻𝗼𝗻-𝘃𝗼𝗹𝗮𝘁𝗶𝗹𝗲 𝗼𝗽𝗲𝗿𝗮𝘁𝗶𝗼𝗻𝗮𝗹 𝗺𝗼𝗱𝗲𝗹. The data shows a 𝟱𝟴% 𝗳𝗲𝗺𝗮𝗹𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝗯𝗮𝘀𝗲 with a high focus on chronic and behavioral health. The concentration of adult patients with chronic conditions suggests 𝗮 𝗺𝗮𝘁𝘂𝗿𝗲 𝗽𝗿𝗮𝗰𝘁𝗶𝗰𝗲 𝘄𝗶𝘁𝗵 𝗮 𝗹𝗼𝘆𝗮𝗹 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝗯𝗮𝘀𝗲. Management should focus on 𝗺𝗮𝗶𝗻𝘁𝗮𝗶𝗻𝗶𝗻𝗴 𝗵𝗶𝗴𝗵 𝘀𝗮𝘁𝗶𝘀𝗳𝗮𝗰𝘁𝗶𝗼𝗻 𝗹𝗲𝘃𝗲𝗹𝘀 𝘄𝗶𝘁𝗵𝗶𝗻 𝘁𝗵𝗲 𝗱𝗼𝗺𝗶𝗻𝗮𝗻𝘁 𝟯𝟱–𝟳𝟰 𝗳𝗲𝗺𝗮𝗹𝗲 𝗱𝗲𝗺𝗼𝗴𝗿𝗮𝗽𝗵𝗶𝗰 while 𝗲𝘅𝗽𝗹𝗼𝗿𝗶𝗻𝗴 𝗴𝗿𝗼𝘄𝘁𝗵 𝗼𝗽𝗽𝗼𝗿𝘁𝘂𝗻𝗶𝘁𝗶𝗲𝘀 𝗶𝗻 𝗽𝗲𝗱𝗶𝗮𝘁𝗿𝗶𝗰 𝗮𝗻𝗱 𝗴𝗲𝗿𝗶𝗮𝘁𝗿𝗶𝗰 𝗰𝗮𝗿𝗲, 𝗮𝘀 𝘁𝗵𝗲 𝗰𝘂𝗿𝗿𝗲𝗻𝘁 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝗯𝗮𝘀𝗲 𝗮𝗴𝗲𝘀. 
 
 <br>
 
@@ -35,7 +35,6 @@ To move from "what" happened to "why," Madivoli Analytics recommends the followi
 
 ☑️ 𝗖𝗹𝗶𝗻𝗶𝗰𝗮𝗹 𝗖𝗼𝗿𝗿𝗲𝗹𝗮𝘁𝗶𝗼𝗻 (𝗚𝗲𝗻𝗱𝗲𝗿 𝘃𝘀. 𝗗𝗶𝗮𝗴𝗻𝗼𝘀𝗶𝘀)
 - 𝗛𝘆𝗽𝗼𝘁𝗵𝗲𝘀𝗶𝘀: Are they coming for preventive care or chronic illness?
-
 
 ☑️ 𝗣𝗿𝗼𝗰𝗲𝗱𝘂𝗿𝗲 𝗜𝗻𝘁𝗲𝗻𝘀𝗶𝘁𝘆 (𝗚𝗲𝗻𝗱𝗲𝗿 𝘃𝘀. 𝗖𝗣𝗧 𝗖𝗼𝗱𝗲𝘀)
 - 𝗛𝘆𝗽𝗼𝘁𝗵𝗲𝘀𝗶𝘀: Are female visits generating more routine revenue (E/M codes) or more specialized procedural revenue?
